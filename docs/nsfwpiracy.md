@@ -266,6 +266,7 @@
 * ⭐ **[Kemono](https://kemono.su/)** - Patreon / [Downloader](https://github.com/notFaad/coom-dl)
 * ⭐ **[Coomer](https://coomer.su/)** - OnlyFans
 * ⭐ **[SimpCity](https://simpcity.su/)** - OnlyFans / Patreon
+* ⭐ **[Picazor](https://picazor.com/)** - OnlyFans / Patreon
 * [Reddit Plug](https://redditplug.com/) - OnlyFans
 * [Epic Leaks](https://t.me/+ajc9iF2hjWU3Mjgx) - OnlyFans
 * [PornLeaks](https://pornleaks.in/) or [Vixenleaks](https://vixenleaks.com/) - OnlyFans / Patreon
